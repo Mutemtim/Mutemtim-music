@@ -1,8 +1,8 @@
-### ᴅᴀʀᴋxᴍᴜsɪᴄ
+### Mutemtim Music
 
-### ᴀɴ ᴀᴅᴠᴀɴᴄᴇᴅ ᴍᴜsɪᴄ ʙᴏᴛ ғᴏʀ ᴛᴇʟᴇɢʀᴀᴍ ɢʀᴏᴜᴘ ᴠᴏɪᴄᴇ ᴄʜᴀᴛ ᴅᴇᴠᴇʟᴏᴘᴇᴅ ʙʏ sᴜᴍɪᴛ ʏᴀᴅᴀᴠ.
+### bot that plays everything u want. *even yo ex
 
-<p align="center"><a href="https://t.me/TechQuardSupport"><img src="https://te.legra.ph/file/b6ee1c66d8717f75dedfa.jpg"></a></p>
+<p align="center"><a href="https://t.me/mutemtim_musi_bot"><img src="https://te.legra.ph/Mutemtim-MUsic-08-04"></a></p>
 
 
 ### ᴅᴇᴘʟᴏʏ ᴛᴏ ʜᴇʀᴏᴋᴜ
